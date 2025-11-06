@@ -1,3 +1,3 @@
-Je m'appelle Onéida EGUEH, je suis sur master
+Je m'appelle Onéida EGUEH, je suis sur master, je suis sur la branche dev
 Je suis en L2IRT
 J'aime danser
